@@ -9,3 +9,11 @@
 ![Screenshot from 2023-07-18 00-32-28](https://github.com/JaspinderKaurWalia26/OUTPUT/assets/132120070/38204300-c78d-4944-8bd5-e0c5ce43efa2)
 
 
+# ARTICLE LIST
+
+![Screenshot from 2023-07-18 08-34-04](https://github.com/JaspinderKaurWalia26/OUTPUT/assets/132120070/52d69732-bb3d-481b-a769-abde5177be1d)
+
+![Screenshot from 2023-07-18 08-34-31 (1)](https://github.com/JaspinderKaurWalia26/OUTPUT/assets/132120070/176222bd-e346-466f-a936-c39eac0a413e)
+
+
+
